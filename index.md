@@ -15,4 +15,4 @@ I'm Toby Hendricks, a freelance composer and videogame designer. If you have any
 
 ## About Me
 
-As a classically trained musician, I'm always looking to push the boundaries of electronic music. I have experience composing for a multitude of different genres, including jazz, film, classical and many more.
+As a classically trained musician, I'm always looking to push the boundaries of electronic music. I have experience composing for a multitude of different genres, including jazz, film, classical, videogames and many more.
